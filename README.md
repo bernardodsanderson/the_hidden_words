@@ -1,1 +1,3 @@
-# the_hidden_words
+# The Hidden Words
+
+The Hidden Words by Baháʼu'lláh, with a updated interpretation of the English translation.
