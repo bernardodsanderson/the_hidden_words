@@ -192,7 +192,7 @@ Think carefully! Would you rather die peacefully in your bed, or give your life 
 
 47 O SON OF MAN!
 
-By My beauty! To tinge thy hair with thy blood is greater in My sight than the creation of the universe and the light of both worlds. Strive then to attain this, O servant!
+I value your sacrifice and dedication so deeply. Even more than creating everything that exists! Show that kind of brave commitment in everything you do, my follower!
 
 48 O SON OF MAN!
 
